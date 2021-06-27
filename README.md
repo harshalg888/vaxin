@@ -1,4 +1,4 @@
-Check COWIN vaccine slots automatically get sound notifications for free!
+Check COWIN vaccine slots automatically and get sound notifications for free!
 # Just visit to www.secretsofuniverse.world 
 The website is 100 % secure and ad-free :)
 
